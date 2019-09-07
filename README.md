@@ -1,3 +1,3 @@
 # projeto-incrivel
 
-Daniel **Conte** || **Mauricio**
+Daniel **Conte** || **Mauricio Best Programmer**
