@@ -1,5 +1,5 @@
 # projeto-incrivel
 
-Daniel **Conte** || **Mauricio Best Programmer**
+Daniel **Conte** || **Mauricio**
 
 Antonio Conte huahauhsuasusauhauhushusaauhsuah
